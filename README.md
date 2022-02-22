@@ -1,2 +1,2 @@
 mockup!
-no copy rights for all images!
+copy rights doesn't belong to me for all images!
